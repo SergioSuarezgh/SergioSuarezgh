@@ -9,7 +9,7 @@ Data Analyst with background in management of incidents and team leader.
 
 👯 I’m looking to collaborate on projects with new technologies
 
-💬 Ask me about Data Analysis, Machine Learning and Fiances
+💬 Ask me about Data Analysis
 
 📫 How to reach me: sersuach@gmail.com
 
