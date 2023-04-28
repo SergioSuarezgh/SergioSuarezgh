@@ -1,6 +1,6 @@
 ### Hi there, I´m Sergio 👋
 
-Data Analyst with background in management of incidents and team leader.
+Data Analyst with background in management of incidents in CAU Banco Santander and team leader.
 
 
 🔭 I’m currently working on grow professionally
